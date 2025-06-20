@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SuperBB802
+- 👋 Hi, I’m @baileeblack1
 -  I’m interested in ... Finding a new purpose in life 
 - Currently trying to improve myself anyway I can
 - not really good at emotions 
